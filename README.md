@@ -2,7 +2,7 @@ Hey w/
 
 Hi I'm Efexjuxix/Efeu [Ivy], 15 y/o female.
 
-C#/C++ Software Dev
+C#/C++/C Software Dev
 
 Currently working on FoS-Operating system (private repository)
 

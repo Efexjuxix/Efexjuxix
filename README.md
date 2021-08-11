@@ -1,6 +1,6 @@
 Hey w/
 
-Hi I'm Efexjuxix/Efeu [Ivy], 15 y/o female.
+Hi I'm Efexjuxix/Efeu [Ivy], 18 y/o female.
 
 C#/C++/C Software Dev
 
